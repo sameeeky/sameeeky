@@ -10,4 +10,4 @@
 
 andrade.samela@escola.pr.gov.br
 
-![](https://media.tenor.com/32usc3I1IAEAAAAd/car-girl.gif)
+![](https://media.tenor.com/BebgSc8B9x0AAAAd/street-outlaws-mike-murillo.gif)
