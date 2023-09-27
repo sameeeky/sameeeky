@@ -10,4 +10,4 @@
 
 andrade.samela@escola.pr.gov.br
 
-![](https://media.tenor.com/olZlJFMcImAAAAAd/haters-gonna-hate-kid.gif)
+![](https://media.tenor.com/32usc3I1IAEAAAAd/car-girl.gif)
